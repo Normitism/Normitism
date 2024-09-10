@@ -1,2 +1,2 @@
 ## Hi there 👋
-- I’m currently learning Nanotechnology at the University of Waterloo
+- I’m currently in the Nanotechnology Engineering program at the University of Waterloo
